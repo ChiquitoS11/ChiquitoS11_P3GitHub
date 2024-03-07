@@ -5,4 +5,4 @@
 
 ## Authors
 
-- [@octokatherine](https://www.github.com/octokatherine)
+- [@ChiquitoS11](https://www.instagram.com/joshuahasproblems/)
